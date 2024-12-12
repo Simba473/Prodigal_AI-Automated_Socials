@@ -1,1 +1,1 @@
-# Automated-social
+# Automated Socials Task by Gurditt
